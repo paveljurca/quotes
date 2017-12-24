@@ -3782,6 +3782,10 @@ Velká chyba je vytvářet něco, co se líbí vám. Naučil jsem se naladit se 
 
 .
 
+Brzy přijde čas, kdy budeme všichni muset volit mezi tím, co je správné a co je snadné / Albus Brumbál
+
+.
+
 > *norský úzus*
 
 
