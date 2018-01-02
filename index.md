@@ -3786,6 +3786,10 @@ Brzy přijde čas, kdy budeme všichni muset volit mezi tím, co je správné a 
 
 .
 
+I make movies that make no money and make no sense / Seijun Suzuki Branded To Kill
+
+.
+
 > *norský úzus*
 
 
