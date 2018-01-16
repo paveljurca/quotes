@@ -3794,6 +3794,10 @@ When I was 5 years old, my mother always told me that happiness was the key to l
 
 .
 
+Naše myšlenky jsou vzpomínkami, naše pocity nás matou, a kdo jsme, je nejasné. Není co chválit, není co odsuzovat, není co vinit, ale mnohé je směšné; a všechno je směšné, když člověk pomyslí na smrt / Thomas Bernhard
+
+.
+
 > *norský úzus*
 
 
