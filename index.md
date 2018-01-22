@@ -3798,6 +3798,10 @@ Naše myšlenky jsou vzpomínkami, naše pocity nás matou, a kdo jsme, je nejas
 
 .
 
+Žijeme s relativně velkou mírou jistot, ale malou mírou rezerv / Petr Michal 22. 1. 2018
+
+.
+
 > *norský úzus*
 
 
