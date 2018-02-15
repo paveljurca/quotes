@@ -3802,6 +3802,18 @@ Naše myšlenky jsou vzpomínkami, naše pocity nás matou, a kdo jsme, je nejas
 
 .
 
+Verba docent, exempla trahunt / Slova poučují, příklady táhnou
+
+.
+
+Hlasování vychází z demokratického principu a víme přece, že v umění nemá demokracie co dělat. Protože většina se mýlí / Jiří Švankmajer
+
+.
+
+Minulost je pohlcována přítomností a přítomnost žije jen tím, že rodí budoucnost / James Joyce
+
+.
+
 > *norský úzus*
 
 
