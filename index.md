@@ -3830,6 +3830,10 @@ What if we were never meant to be a global species / Rick Webb 26. 12. 2017
 
 .
 
+Systém vzdělávání, který máme, prakticky odnaučí lidi pracovat. [..] žáci si o práci vykládají, oni nepracují / Lubomír Stoklásek 28. 2. 2018
+
+.
+
 > *norský úzus*
 
 
