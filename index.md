@@ -3814,6 +3814,22 @@ Minulost je pohlcována přítomností a přítomnost žije jen tím, že rodí 
 
 .
 
+A peaceful and efficient society is based on practical workers, not on thinkers / Brave New World
+
+.
+
+Mluvit pravdu v čase všeobecného klamu je revoluční čin / 1984
+
+.
+
+Instituce nám pomáhají zachovat slušnost / Timothy Snider
+
+.
+
+What if we were never meant to be a global species / Rick Webb 26. 12. 2017
+
+.
+
 > *norský úzus*
 
 
