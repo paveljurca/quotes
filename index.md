@@ -3834,6 +3834,10 @@ Systém vzdělávání, který máme, prakticky odnaučí lidi pracovat. [..] ž
 
 .
 
+V řadě oborů se vyplatí více pracovat s lidmi než s roboty / Igor Fait 14. 3. 2018
+
+.
+
 > *norský úzus*
 
 
