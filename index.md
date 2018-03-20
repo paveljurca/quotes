@@ -3838,6 +3838,10 @@ V řadě oborů se vyplatí více pracovat s lidmi než s roboty / Igor Fait 14.
 
 .
 
+Posledním lidským právem, které člověku zbyde, je chcípnout tak, jak chce — a být uchráněn cizí pomoci / Stefan Zweig Amok
+
+.
+
 > *norský úzus*
 
 
