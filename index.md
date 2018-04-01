@@ -3842,6 +3842,10 @@ Posledním lidským právem, které člověku zbyde, je chcípnout tak, jak chce
 
 .
 
+Nic není senzačnějšího než doba, v níž žijeme / Egon Erwin Kisch
+
+.
+
 > *norský úzus*
 
 
