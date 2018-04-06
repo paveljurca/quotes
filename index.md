@@ -3846,6 +3846,10 @@ Nic není senzačnějšího než doba, v níž žijeme / Egon Erwin Kisch
 
 .
 
+Někteří z nás byli rádi za to, že zmizela skupina Dienstbierů, Marksových, Valachových. Teď s hrůzou vidíme, že se vracejí / Václav Klaus 5. 4. 2018
+
+.
+
 > *norský úzus*
 
 
