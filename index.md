@@ -3850,6 +3850,14 @@ Někteří z nás byli rádi za to, že zmizela skupina Dienstbierů, Marksovýc
 
 .
 
+"Majetky", které podléhají "tunelování", jsou výsledky práce druhých — ale protože tyto pracovní síly jsou o své majetky okrádány, a dostávají se tedy pomalu, ale jistě mimo hru, musí nutně časem dojít k situaci, kdy už nebudou k dispozici žádné majetky, a tedy nebude co nadále tunelovat / Zygmunt Bauman Liquid Times
+
+.
+
+Ačkoli kapitalismus potřebuje nekapitalistické, sociální organizace jako prostředí pro svůj rozvoj, kráčí kupředu jedině tak, že vstřebává právě tento souhrn předpokladů, který jediný dokáže zaručit jeho existenci / Rosa Luxemburg The Accumulation of Capital
+
+.
+
 > *norský úzus*
 
 
