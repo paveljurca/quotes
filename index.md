@@ -3858,6 +3858,10 @@ Ačkoli kapitalismus potřebuje nekapitalistické, sociální organizace jako pr
 
 .
 
+Nejdůležitější je zachovat si svou identitu v kultuře, v níž jsme vyrostli / Zbigniew Walach Folklorika
+
+.
+
 > *norský úzus*
 
 
