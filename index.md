@@ -3862,6 +3862,10 @@ Nejdůležitější je zachovat si svou identitu v kultuře, v níž jsme vyrost
 
 .
 
+Ať už jsou naše osobní nedostatky jakékoliv, ušlechtilost našeho řemesla zůstane zakořeněna ve dvou závazcích, o které bude vždy těžké bojovat: odmítání lži o tom, co víme, a vzdorování útlaku / Albert Camus 1957
+
+.
+
 > *norský úzus*
 
 
