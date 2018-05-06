@@ -3866,6 +3866,10 @@ Ať už jsou naše osobní nedostatky jakékoliv, ušlechtilost našeho řemesla
 
 .
 
+If you're teaching today what you were teaching five years ago, either the field is dead or you are / Noam Chomsky
+
+.
+
 > *norský úzus*
 
 
