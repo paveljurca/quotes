@@ -3870,6 +3870,10 @@ If you're teaching today what you were teaching five years ago, either the field
 
 .
 
+He is almost a statesman: he lies well / Napoleone di Buonaparte
+
+.
+
 > *norský úzus*
 
 
