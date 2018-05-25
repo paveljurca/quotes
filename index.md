@@ -3874,6 +3874,14 @@ He is almost a statesman: he lies well / Napoleone di Buonaparte
 
 .
 
+Žijeme na studeném, nevlídném a odlehlém místě, proto musel každý vždy tvrdě pracovat / Tarja Halonen
+
+.
+
+To, že nic nechceme, neznamená, že jsme moudří, skromní a vyrovnaní. To znamená, že spíme / Josef Pleskot 2018
+
+.
+
 > *norský úzus*
 
 
