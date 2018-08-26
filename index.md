@@ -3882,6 +3882,14 @@ To, že nic nechceme, neznamená, že jsme moudří, skromní a vyrovnaní. To z
 
 .
 
+I'm not like them but I can pretend / Kurt Cobain
+
+.
+
+Volný čas je komoditou budoucnosti / Igor Rattaj 14. 6. 2018
+
+.
+
 > *norský úzus*
 
 
