@@ -3890,6 +3890,10 @@ Volný čas je komoditou budoucnosti / Igor Rattaj 14. 6. 2018
 
 .
 
+Kdybych si byl dovedl představiti, jaké to bude pak, snad bych se byl přece vrátil mezi vzdělané lidi. Ale já se vracet neumím a vracím se nerad / Jan Welzl
+
+.
+
 > *norský úzus*
 
 
