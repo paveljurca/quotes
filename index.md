@@ -3894,6 +3894,18 @@ Kdybych si byl dovedl představiti, jaké to bude pak, snad bych se byl přece v
 
 .
 
+My lord, we know what we are now, but not what we may become. May God be at your table / Hamlet
+
+.
+
+A miser is a fellow who lives within his income. He is also called a magician / Honoré de Balzac
+
+.
+
+It’s all about services and software going forward / Christophe Domke, KPMG
+
+.
+
 > *norský úzus*
 
 
