@@ -3906,6 +3906,18 @@ It’s all about services and software going forward / Christophe Domke, KPMG
 
 .
 
+Family's the most important thing. Everything else is just bullshit / Clinton Eastwood Jr., The Mule
+
+.
+
+There are so many people to feed, but... But they are your family. So you have to feed them. [..] So I have sympathy for a man who can say, "I have a papa"... and who does what he must for his family. [..] You could have been my son. But you're not. Remember that. We'll do business, but you aren't family. / Munich, 2005
+
+.
+
+We don't work with governments / Munich, 2005
+
+.
+
 > *norský úzus*
 
 
