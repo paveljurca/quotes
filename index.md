@@ -3918,6 +3918,10 @@ We don't work with governments / Munich, 2005
 
 .
 
+K životu je třeba čas. Jako každé umění i žití vyžaduje, aby na ně člověk myslel / Albert Camus, Šťastná smrt
+
+.
+
 > *norský úzus*
 
 
