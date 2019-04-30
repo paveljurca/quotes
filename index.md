@@ -3890,7 +3890,7 @@ Volný čas je komoditou budoucnosti / Igor Rattaj 14. 6. 2018
 
 .
 
-Kdybych si byl dovedl představiti, jaké to bude pak, snad bych se byl přece vrátil mezi vzdělané lidi. Ale já se vracet neumím a vracím se nerad / Jan Welzl
+Kdybych si byl dovedl představiti, jaké to bude pak, snad bych se byl přece vrátil mezi vzdělané lidi. Ale já se vracet neumím a vracím se nerad / Jan "Eskymo" Welzl
 
 .
 
@@ -3910,11 +3910,11 @@ Family's the most important thing. Everything else is just bullshit / Clinton Ea
 
 .
 
-There are so many people to feed, but... But they are your family. So you have to feed them. [..] So I have sympathy for a man who can say, "I have a papa"... and who does what he must for his family. [..] You could have been my son. But you're not. Remember that. We'll do business, but you aren't family. / Munich, 2005
+There are so many people to feed, but... But they are your family. So you have to feed them. [..] So I have sympathy for a man who can say, "I have a papa"... and who does what he must for his family. [..] You could have been my son. But you're not. Remember that. We'll do business, but you aren't family. / Munich
 
 .
 
-We don't work with governments / Munich, 2005
+We don't work with governments / Munich
 
 .
 
@@ -3922,7 +3922,19 @@ K životu je třeba čas. Jako každé umění i žití vyžaduje, aby na ně č
 
 .
 
-> *norský úzus*
+Success comes from choosing what's best for you / unknown
+
+.
+
+Zima neexistuje — jste jen špatně oblečeni / norský úzus
+
+.
+
+Continuous learning inspires innovation / Anurag Sindhwani, XChanging Malaysia SDN BHD
+
+.
+
+As a general rule, the most successful man in life is the man who has the best information / Benjamin Disraeli
 
 
 * __elsewhere__
