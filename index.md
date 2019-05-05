@@ -3936,6 +3936,19 @@ Continuous learning inspires innovation / Anurag Sindhwani, XChanging Malaysia S
 
 As a general rule, the most successful man in life is the man who has the best information / Benjamin Disraeli
 
+.
+
+The hard focus on information which the computer encourages must in time have the effect of crowding out new ideas, which are the intellectual source that generates facts / Theodore Roszak
+
+.
+
+Humans are tool builders and we build tools that can dramatically amplify our innate human abilities [..] personal computer is the bicycle of the mind / Steven Paul Jobs, 1996
+
+.
+
+It's good to be slow and steady; but it's better to be fast and reliable / The Power of a Team
+
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
