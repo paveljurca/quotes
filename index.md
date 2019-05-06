@@ -3948,6 +3948,10 @@ Humans are tool builders and we build tools that can dramatically amplify our in
 
 It's good to be slow and steady; but it's better to be fast and reliable / The Power of a Team
 
+.
+
+There's a difference between knowing the path and walking the path / Matrix
+
 
 
 * __elsewhere__
