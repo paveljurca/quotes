@@ -3956,6 +3956,22 @@ There's a difference between knowing the path and walking the path / Matrix
 
 Whatever our situation, we have to live / Marriage Études: Marcela and Jiri
 
+.
+
+The further a society drifts from the truth, the more it will hate those that speak it / George Orwell
+
+.
+
+Všeho se dá dosáhnout, vše je možné. Člověk se nerodí silný, slabý nebo umíněný. Stává se silným, učí se jasné mysli. Osud není uvnitř člověka, ale kolem něho / Albert Camus Šťastná smrt
+
+.
+
+Pochopil, že mít strach ze smrti, znamená mít strach i ze života / Albert Camus Šťastná smrt
+
+.
+
+Člověk může dělat to, co chce, ale nemůže chtít, aby chtěl / Arthur Schopenhauer
+
 
 
 * __elsewhere__
