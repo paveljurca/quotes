@@ -3972,6 +3972,11 @@ Pochopil, že mít strach ze smrti, znamená mít strach i ze života / Albert C
 
 Člověk může dělat to, co chce, ale nemůže chtít, aby chtěl / Arthur Schopenhauer
 
+.
+
+I didn't get no answers, because I was asking the wrong questions. You have to ask the right questions / American History
+
+
 
 
 * __elsewhere__
