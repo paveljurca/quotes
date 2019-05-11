@@ -3976,6 +3976,10 @@ Pochopil, že mít strach ze smrti, znamená mít strach i ze života / Albert C
 
 I didn't get no answers, because I was asking the wrong questions. You have to ask the right questions / American History
 
+.
+
+You take a break, you'll find no peace. The way to find peace is to stick / American History
+
 
 
 
