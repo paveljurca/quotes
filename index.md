@@ -3980,6 +3980,9 @@ I didn't get no answers, because I was asking the wrong questions. You have to a
 
 You take a break, you'll find no peace. The way to find peace is to stick / American History
 
+.
+
+Nepokládám za spravedlivé, že jsou mezi lidmi sociální rozdíly, zdá se mi, že koneckonců mají svůj původ v násilí / Albert Einstein Mein Weltbild
 
 
 
