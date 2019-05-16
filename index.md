@@ -3984,6 +3984,14 @@ You take a break, you'll find no peace. The way to find peace is to stick / Amer
 
 Nepokládám za spravedlivé, že jsou mezi lidmi sociální rozdíly, zdá se mi, že koneckonců mají svůj původ v násilí / Albert Einstein Mein Weltbild
 
+.
+
+Don't your eyes seek out the things you want? / The Silence of the Lambs
+
+.
+
+First principles, Clarice. Simplicity. Read Marcus Aurelius. Of each particular thing, ask what is it in itself? What is its nature? What does he do, this man you seek? / The Silence of the Lambs
+
 
 
 * __elsewhere__
