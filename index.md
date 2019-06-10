@@ -3992,6 +3992,18 @@ Don't your eyes seek out the things you want? / The Silence of the Lambs
 
 First principles, Clarice. Simplicity. Read Marcus Aurelius. Of each particular thing, ask what is it in itself? What is its nature? What does he do, this man you seek? / The Silence of the Lambs
 
+.
+
+Divné věci se dějí pořád / Magnolia
+
+.
+
+You will never change your life until you change something you do daily / John C. Maxwell
+
+.
+
+Vždycky jsem si o dětech myslel, že jsou pitomý hloupý snílci, co nemaj o ničem páru — ale tak to má bejt  /  Flaskepost fra P
+
 
 
 * __elsewhere__
