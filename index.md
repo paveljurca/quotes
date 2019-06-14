@@ -4004,6 +4004,9 @@ You will never change your life until you change something you do daily / John C
 
 Vždycky jsem si o dětech myslel, že jsou pitomý hloupý snílci, co nemaj o ničem páru — ale tak to má bejt  /  Flaskepost fra P
 
+.
+
+Pohleďte, pohrdavci, podivte se a zhyňte: Já konám dílo ve vaší době, dílo, jemuž neuvěříte, i kdyby vám o něm někdo vyprávěl / Sk 13,41
 
 
 * __elsewhere__
