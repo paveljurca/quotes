@@ -4008,6 +4008,12 @@ Vždycky jsem si o dětech myslel, že jsou pitomý hloupý snílci, co nemaj o 
 
 Pohleďte, pohrdavci, podivte se a zhyňte: Já konám dílo ve vaší době, dílo, jemuž neuvěříte, i kdyby vám o něm někdo vyprávěl / Sk 13,41
 
+.
+
+Whether you think you can, or you think you can't — you're right / Henry T. Ford
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
