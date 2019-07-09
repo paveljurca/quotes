@@ -4014,6 +4014,18 @@ Whether you think you can, or you think you can't — you're right / Henry T. Fo
 
 .
 
+Změň, co změnit můžeš, ostatní nech být / Henry T. Ford
+
+.
+
+Don't find fault, find a remedy; anybody can complain / Henry T. Ford
+
+.
+
+The past is gone. The future isn't here yet, whatever it's going to be. So, all there is is — is this. The present. That's it / Broken Flowers
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
