@@ -4026,6 +4026,12 @@ The past is gone. The future isn't here yet, whatever it's going to be. So, all 
 
 .
 
+V Borském Mikuláši a okolí nejsou obchody ani fabriky, jen lesy a pole, místní řeší, aby jim nesly slepice, aby zapršelo, aby měli zdravou krávu. Nejsou hloupí ani jednoduší, jsou srovnaní s tím, co mají / Pavol Jablonický Bez frází
+
+.
+
+
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
