@@ -4030,7 +4030,9 @@ V Borském Mikuláši a okolí nejsou obchody ani fabriky, jen lesy a pole, mís
 
 .
 
+Stay away from negative people. They have a problem for every solution / unknown
 
+.
 
 
 * __elsewhere__
