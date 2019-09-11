@@ -4034,6 +4034,14 @@ Stay away from negative people. They have a problem for every solution / unknown
 
 .
 
+Slova nevrátí nic, myslete / unknown
+
+.
+
+Následuj náhodné cíle, člověče / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
