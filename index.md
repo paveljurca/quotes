@@ -4043,6 +4043,15 @@ Následuj náhodné cíle, člověče / unknown
 .
 
 
+Nestarejte se proto příliš o zítřek; neboť zítřek se postará sám o sebe; každý den má dosti na svém soužení / Mt 6, 34
+
+.
+
+You put a bullet in someone. You're not you anymore. You'll never be you again. But then you wake up the next morning, and you're still you. And you realize, that was you all along. You just didn't know / Chernobyl
+
+.
+
+
 * __elsewhere__
 * https://tribun.red/category/citaty/
 * [MathPages Quotations](http://www.mathpages.com/home/quotes.htm)
