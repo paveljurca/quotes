@@ -4051,6 +4051,10 @@ You put a bullet in someone. You're not you anymore. You'll never be you again. 
 
 .
 
+One night you'll wake up, and you'll discover it never happened. It's all turned around on you. It never will. Suddenly you are old. Didn't happen. And it never will, because you were never gonna do it anyway / Vincent Collateral
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
