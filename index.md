@@ -4055,6 +4055,19 @@ One night you'll wake up, and you'll discover it never happened. It's all turned
 
 .
 
+Většina lidí se prostě bojí to tam v životě pořádně poslat / Libor Podmol Gravitation
+
+.
+
+Was he good at anything? Yeah, he was the best motorcycle rider / The Place Beyond the Pines
+
+.
+
+Jeden indián se válí na sluníčku, přijde jeho šéf a řekne: "Proč nepracuješ?" A indián říká: "Proč bych měl?" A šéf říká: "Musíš pracovat, aby sis vydělal. Vyděláš si peníze, dáš si je do banky, a vyděláš další a až ti bude padesát — tak nebudeš muset pracovat." A indián říká: "Já už teď nepracuju." / indiánské vtipy
+
+.
+
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
