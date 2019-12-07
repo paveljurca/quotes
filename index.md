@@ -4067,6 +4067,10 @@ Jeden indián se válí na sluníčku, přijde jeho šéf a řekne: "Proč nepra
 
 .
 
+The plant was founded by Julian Opie. This consists of circles and lines. Monotone coloring, without texture. The thing that makes it worth a quarter of a million, is the artist's name — renomé / Hodejegerne
+
+.
+
 
 
 * __elsewhere__
