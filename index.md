@@ -4071,6 +4071,9 @@ The plant was founded by Julian Opie. This consists of circles and lines. Monoto
 
 .
 
+Víte, proč je máslo tak drahé? Protože ho mají politici na hlavě / Prezident Blaník
+
+.
 
 
 * __elsewhere__
