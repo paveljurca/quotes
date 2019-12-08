@@ -4075,6 +4075,10 @@ Víte, proč je máslo tak drahé? Protože ho mají politici na hlavě / Prezid
 
 .
 
+Začít přemýšlet znamená začít se trápit / Albert Camus
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
