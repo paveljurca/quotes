@@ -4079,6 +4079,14 @@ Začít přemýšlet znamená začít se trápit / Albert Camus
 
 .
 
+A to, že to hodíš za hlavu, neznamená, že to máš za sebou. Spíš to často spadne na hlavu těm, co vždycky stáli za tebou / Prago Union Kretén
+
+.
+
+Člověk by chtěl být gigantem a je hovno / Osudy dobrého vojáka Švejka
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
