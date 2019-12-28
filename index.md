@@ -4103,6 +4103,14 @@ Jak se všechno mohlo tak posrat? / Breaking Bad
 
 .
 
+Kdo nemyslí jenom na sebe, vidí i se zavřenýma očima / Bajaja
+
+.
+
+Člověk si dává jméno tím, co dělá / Bajaja
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
