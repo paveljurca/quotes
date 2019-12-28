@@ -4087,15 +4087,19 @@ A to, že to hodíš za hlavu, neznamená, že to máš za sebou. Spíš to čas
 
 .
 
-The most important thing in business is honesty, integrity, hard work and family. Never forgetting where we came from / Frank American Gangster
+The most important thing in business is honesty, integrity, hard work and family. Never forgetting where we came from / American Gangster
 
 .
 
-Bumpy was rich, but he wasn't white man rich. He wasn't wealthy. He didn't own his own company. He thought he did, but he didn't, he just managed it. The white man owned it, so they owned him / Frank American Gangster
+Bumpy was rich, but he wasn't white man rich. He wasn't wealthy. He didn't own his own company. He thought he did, but he didn't, he just managed it. The white man owned it, so they owned him / American Gangster
 
 .
 
-I own my own company, and my company sells a product that's better than the competition, at a price that's lower than the competition / Frank American Gangster
+I own my own company, and my company sells a product that's better than the competition, at a price that's lower than the competition / American Gangster
+
+.
+
+Jak se všechno mohlo tak posrat? / Breaking Bad
 
 .
 
