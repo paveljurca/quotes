@@ -4111,6 +4111,10 @@ Kdo nemyslí jenom na sebe, vidí i se zavřenýma očima / Bajaja
 
 .
 
+If you understand something today, that means it must already be obsolete. Or to put it another way, never have so many people understood so little about so much / James Burke Yesterday, Tomorrow and You
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
