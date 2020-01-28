@@ -4123,6 +4123,10 @@ Zbavte se věcí, které vám přinášejí radost / Fumio Sasaki
 
 .
 
+Who designs computer programs so complex that only they can use them? Nerds / Freakazoid, Nerdator
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
