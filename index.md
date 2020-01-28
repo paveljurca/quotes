@@ -4115,6 +4115,14 @@ If you understand something today, that means it must already be obsolete. Or to
 
 .
 
+Zbylo mi to, na čem opravdu záleží: přítomnost / Fumio Sasaki
+
+.
+
+Zbavte se věcí, které vám přinášejí radost / Fumio Sasaki
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
