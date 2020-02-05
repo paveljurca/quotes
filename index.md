@@ -4127,6 +4127,10 @@ Who designs computer programs so complex that only they can use them? Nerds / Fr
 
 .
 
+Co s penězi? Je po nich sucho v puse / Velká sýrová loupež
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
