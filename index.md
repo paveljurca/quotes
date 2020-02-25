@@ -4131,6 +4131,42 @@ Co s penězi? Je po nich sucho v puse / Velká sýrová loupež
 
 .
 
+Většina lidí žije tak, že nejdříve musí mít peníze, majetky a pak teprve budou dělat to, co chtějí. Ale nikdy se jim to nepodaří, je nutné otočit / Pavel Stuchlík 22. 2. 2020
+
+.
+
+Our worst fear is not that we are inadequate. Our deepest fear is that we are powerful beyond the measure / unknown
+
+.
+
+
+Kdo život svůj i svých bližních má za něco nesmyslného, ten je nejenom nešťastný, ale i skoro neschopen žít / Albert Einstein Jak vidím svět
+
+.
+
+Skutečná hodnota člověka je v prvé řadě určována tím, nakolik a v jakém smyslu se dokázal osvobodit od svého Já / Albert Einstein Jak vidím svět
+
+.
+
+There's infinite demand for a job well done / Ryan Petersen, Flexport
+
+.
+
+If you can't measure it, you can't manage it / Peter Drucker
+
+.
+
+I thought once everybody could speak freely and exchange information and ideas, the world is automatically going to be a better place. I was wrong about that / Evan Williams
+
+.
+
+Palačinky jsou pro buzeranty / Wafflovač Zahulíme, uvidíme
+
+.
+
+The ability to mislead people is greatly underestimated / Charlie Munger
+
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
