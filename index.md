@@ -4166,6 +4166,12 @@ Palačinky jsou pro buzeranty / Wafflovač Zahulíme, uvidíme
 
 The ability to mislead people is greatly underestimated / Charlie Munger
 
+.
+
+There is a time for many words and there is also a time for sleep / Hómēros
+
+
+
 
 
 * __elsewhere__
