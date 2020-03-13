@@ -4184,7 +4184,7 @@ I was an ordinary person who studied hard. There's no miracle people / Richard F
 
 .
 
-You never want a serious crisis to go to waste. Things that we had postponed for too long, that were long-term, are now immediate and must be dealt with. This crisis provides the opportunity for us to do things that you could not do before / Rahm Emanuel
+You never want a serious crisis to go to waste. Things that we had postponed for too long, that were long-term, are now immediate and must be dealt with. This crisis provides the opportunity for us to do things that you could not do before / Rahm Emanuel 2008
 
 
 
