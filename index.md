@@ -4170,6 +4170,21 @@ The ability to mislead people is greatly underestimated / Charlie Munger
 
 There is a time for many words and there is also a time for sleep / Hómēros
 
+.
+
+Rozhodně je dobrý mít pevný zásady a držet se jich. V manželství, v kriminále, ve válce, prostě vždycky a všude. Já jsem to docela posral / Thomas Angelo Mafia
+
+.
+
+Ten kdo chce příliš moc, může ztratit úpně všechno a kdo chce zas od života moc málo, nemusí dostat vůbec nic / Thomas Angelo Mafia
+
+.
+
+I was an ordinary person who studied hard. There's no miracle people / Richard Feynman
+
+.
+
+You never want a serious crisis to go to waste. Things that we had postponed for too long, that were long-term, are now immediate and must be dealt with. This crisis provides the opportunity for us to do things that you could not do before / Rahm Emanuel
 
 
 
