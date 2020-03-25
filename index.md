@@ -4190,6 +4190,13 @@ You never want a serious crisis to go to waste. Things that we had postponed for
 
 Hierarchie našich hodnot, co je důležité, a co ne, se během pár dní změnila / Martin Bareš březen 2020
 
+.
+
+Srát na systém pro mě znamená nebýt smířený s tím, že budeš chodit do práce do 78 let a pak umřeš. To mě sere / Michajlov
+
+.
+
+Musel jsem se stěhovat, nechtěl jsem, měl jsem jenom mámu, a když seš děcko, tak tě to trochu dojebává. Teďka už by mi to bylo jedno, ale když je ti deset, tak nevíš / Michajlov
 
 
 
