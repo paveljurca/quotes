@@ -4198,6 +4198,19 @@ Srát na systém pro mě znamená nebýt smířený s tím, že budeš chodit do
 
 Musel jsem se stěhovat, nechtěl jsem, měl jsem jenom mámu, a když seš děcko, tak tě to trochu dojebává. Teďka už by mi to bylo jedno, ale když je ti deset, tak nevíš / Michajlov
 
+.
+
+Nechá-li se cestovatel, který se vydal ve směru nějaké hvězdy, zmást problémy výstupu, ocitá se v nebezpečí, že zapomene, která hvězda ho vede / Saint-Exupéry Citadela
+
+.
+
+Zatím je to velmi příjemné a i další vývoj v tomto směru nám bude připadat praktický, výhodný a hlavně pohodlný, ale časem zjistíme, že jsme se stali objektem nejenom kontroly, ale i manipulace s myšlením / Karel Gott 2001
+
+.
+
+Už v pubertě člověk zjistí, že životní moudrost se nedozví od učitele těsně před důchodem, nýbrž od návštěvníka non-stopu těsně před pochcáním / Úvod do současné trapnosti
+
+.
 
 
 * __elsewhere__
