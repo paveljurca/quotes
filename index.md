@@ -4212,6 +4212,15 @@ Už v pubertě člověk zjistí, že životní moudrost se nedozví od učitele 
 
 .
 
+Don't even try to understand all complex ways of tumorigenesis — just cure it / James D. Watson Hallmarks and Horizons of Cancer 2011
+
+.
+
+Road racing means going to the toilet, a lot / Horst Saiger
+
+.
+
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
