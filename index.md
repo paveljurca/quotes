@@ -4220,6 +4220,11 @@ Road racing means going to the toilet, a lot / Horst Saiger
 
 .
 
+You're not going to be famous because you know shit / Dave Lister Red Dwarf
+
+.
+
+
 
 
 * __elsewhere__
