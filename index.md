@@ -4224,6 +4224,12 @@ You're not going to be famous because you know shit / Dave Lister Red Dwarf
 
 .
 
+Zmatek dnešní civilizace je založený na tom, že žijeme v konceptech a představách, ne v přítomném okamžiku. V tom, že sledujeme myšlenky, které vedou za roh / Jaroslav Dušek 2019
+
+.
+
+It really just takes one person to make a difference / unknown
+
 
 
 
