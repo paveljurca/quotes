@@ -4230,7 +4230,11 @@ Zmatek dnešní civilizace je založený na tom, že žijeme v konceptech a pře
 
 It really just takes one person to make a difference / unknown
 
+.
 
+Jen mravenečci, samý spěch, se nepřipojí k tanci všech. Ne že by byli k hudbě hluší, však z práce nic je nevyruší / Cvrček a mravenci
+
+.
 
 
 * __elsewhere__
