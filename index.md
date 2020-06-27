@@ -4236,6 +4236,10 @@ Jen mravenečci, samý spěch, se nepřipojí k tanci všech. Ne že by byli k h
 
 .
 
+Nepřipravenost stranou, deficity mohly být i tak daleko nižší. Stačilo, aby se peníze, které nemáme, nerozdávaly plnými hrstmi lidem, kteří je nepotřebují / Martin Lobotka 24. 6. 2020
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
