@@ -4240,6 +4240,10 @@ Nepřipravenost stranou, deficity mohly být i tak daleko nižší. Stačilo, ab
 
 .
 
+Z toho kdo se nebrání, jednou bude ztroskotanec / Klass
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
