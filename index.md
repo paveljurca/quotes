@@ -4244,6 +4244,26 @@ Z toho kdo se nebrání, jednou bude ztroskotanec / Klass
 
 .
 
+If you want to go fast, go alone. If you want to grow far, go together / African proverb
+
+.
+
+K tomu, aby si člověk mohl uspořádat myšlenky, potřebuje alespoň dvě / František Pochylý 4.7.2020
+
+.
+
+Bůh dal budoucímu lidstvu ještě jednu šanci ve formě tří darů. Řeči, matematiky a hudby. Řeč proto, aby lidi sbližovala a mohli si sdělovat své poznatky a zkušenosti. Matematiku jako prostředek pro poznávání přírodních zákonů, který vytvoří podmínky pro přežití lidstva. A hudbu jako potěšení po těžké práci / František Pochylý 4.7.2020
+
+.
+
+Začíná nás ovládat lenost a sklon k požitkům. Velmi snadno opouštíme to, co se nám zdá obtížné / František Pochylý 4.7.2020
+
+.
+
+Otec si nás děti zavolal a vyslovil přání, abychom se učili matematiku a jazyky. Matematiku proto, že nás bude nutit k přemýšlení, a učením jazyků si budeme cvičit paměť. K životu nám to opravdu postačilo / František Pochylý 4.7.2020
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
