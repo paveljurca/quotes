@@ -4264,6 +4264,10 @@ Otec si nás děti zavolal a vyslovil přání, abychom se učili matematiku a j
 
 .
 
+Things do not change. We change / Henry Thoreau
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
