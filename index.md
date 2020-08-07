@@ -4268,6 +4268,14 @@ Things do not change. We change / Henry Thoreau
 
 .
 
+Umět rozlišit, co je skutečné a co falešné, může v dnešním světě znamenat rozdíl mezi bohatstvím a chudobou / Fake Robert T. Kiyosaki
+
+.
+
+Bucky Fuller nás učil, že se máme nejprve soustředit na celek a teprve pak na detaily / Fake Robert T. Kiyosaki
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
