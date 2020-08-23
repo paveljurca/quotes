@@ -4276,6 +4276,14 @@ Bucky Fuller nás učil, že se máme nejprve soustředit na celek a teprve pak 
 
 .
 
+The girls go to college and the boyzs go to jail / Gran Torino
+
+.
+
+Žij dobrý život a zestárni / Gran Torino
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
