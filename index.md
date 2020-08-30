@@ -4284,6 +4284,14 @@ The girls go to college and the boyzs go to jail / Gran Torino
 
 .
 
+When you set an intention for your day, your day tends to flow a lot better. To set my intention, I use a technique that I call Feel. Know. Do. / Alexandra Franzen 26.8.2020
+
+.
+
+You can't steer a parked car / Sean McCabe 26.8.2020
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
