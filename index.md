@@ -4276,7 +4276,7 @@ Bucky Fuller nás učil, že se máme nejprve soustředit na celek a teprve pak 
 
 .
 
-The girls go to college and the boyzs go to jail / Gran Torino
+The girls go to college and the boys go to jail / Gran Torino
 
 .
 
@@ -4289,6 +4289,10 @@ When you set an intention for your day, your day tends to flow a lot better. To 
 .
 
 You can't steer a parked car / Sean McCabe 26.8.2020
+
+.
+
+What are you looking at? To what goal are you straining? The whole future lies in uncertainty: live immediately / Seneca
 
 .
 
