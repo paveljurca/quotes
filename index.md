@@ -4296,6 +4296,10 @@ What are you looking at? To what goal are you straining? The whole future lies i
 
 .
 
+Svoboda se brání, o svobodě se nediskutuje / Eduard Stehlík
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
