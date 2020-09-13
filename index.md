@@ -4300,6 +4300,14 @@ Svoboda se brání, o svobodě se nediskutuje / Eduard Stehlík
 
 .
 
+Práce přináší nemoc - neumři mlád / černohorské přikázání
+
+.
+
+Pracuj méně než co můžeš, a to co můžeš, přehoď na jiného / černohorské přikázání
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
