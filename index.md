@@ -4308,6 +4308,14 @@ Pracuj méně než co můžeš, a to co můžeš, přehoď na jiného / černoho
 
 .
 
+Question at hand isn't whether I've done anything useful, but rather whether this was the most useful way I could have spent these years / Colin Percival, On the use of a life
+
+.
+
+Starting my own company has given me the sort of freedom which academics aspire to. Sure, I have customers to assist, servers to manage and business accounting to do; but professors equally have classes to teach, students to supervise, and committees to attend / Colin Percival, On the use of a life
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
