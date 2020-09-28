@@ -4316,6 +4316,14 @@ Starting my own company has given me the sort of freedom which academics aspire 
 
 .
 
+You cannot escape the responsibility of tomorrow by evading it today / Abraham Lincoln 1865
+
+.
+
+My father taught me to work; he did not teach me to love it / Abraham Lincoln
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
