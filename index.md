@@ -4324,6 +4324,10 @@ My father taught me to work; he did not teach me to love it / Abraham Lincoln
 
 .
 
+How can you get up and not have a passion / Travis Pastrana 2015
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
