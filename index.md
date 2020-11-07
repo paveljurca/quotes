@@ -4328,6 +4328,10 @@ How can you get up and not have a passion / Travis Pastrana 2015
 
 .
 
+Proč mám v téhle zemi pocit, že když mi někdo říká "suďte se se mnou", že mě vlastně posílá do p.r.d.ele / Jiří Kulhánek
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
