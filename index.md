@@ -4332,6 +4332,10 @@ Proč mám v téhle zemi pocit, že když mi někdo říká "suďte se se mnou",
 
 .
 
+Náš dech nám pomáhá vnímat pouze přítomnost. Nadechnout se nemůžete z minulosti ani z budoucnosti. Dech stabilizuje naši mysl. Zbaví nás stresu i úzkosti / Zuzana Klingerová
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
