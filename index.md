@@ -4336,6 +4336,22 @@ Náš dech nám pomáhá vnímat pouze přítomnost. Nadechnout se nemůžete z 
 
 .
 
+Nemám rád motorky, nemám rád jejich hluk, nerad jezdím po silnicích / Cal Crutchlow
+
+.
+
+Nedělám žádný trénink. Nechodím do posilovny, necvičím, nic takového. Jen každý den jezdím na kole / Cal Crutchlow
+
+.
+
+Často všechno víte, ale je třeba na sobě každodenně po všech stránkách pracovat; nic není samozřejmost a že jsem teď šťastná, neznamená, že budu i za týden / Yvetta Hlaváčová
+
+.
+
+Nobody can give you freedom; nobody can give you equality or justice — if you are a man you take it / Hacker energy 
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
