@@ -4352,6 +4352,10 @@ Nobody can give you freedom; nobody can give you equality or justice — if you 
 
 .
 
+It’s not natural; it’s not right. We weren’t made to be in the rat race. Not even rats were made to be in the rat race / Tal Ben-Shahar
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
