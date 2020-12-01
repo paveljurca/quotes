@@ -4356,6 +4356,13 @@ It’s not natural; it’s not right. We weren’t made to be in the rat race. N
 
 .
 
+Jestli je čtyři a půl tisíce lidí s covidem-19 v nemocnicích dost relevantní důvod všechno zavřít a čekat, až budeme mít absolutní nulu, tak si myslím, že si to nemůžeme dovolit / Zdeněk Pohlreich 1.12.2020
+
+.
+
+Každá liška chválí svůj ocas a která ho nemá, tvrdí, že je lepší bez něj / přísloví
+
+.
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
