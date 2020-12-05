@@ -4364,6 +4364,10 @@ Každá liška chválí svůj ocas a která ho nemá, tvrdí, že je lepší bez
 
 .
 
+Důležitý je přístup ke spolehlivým informacím / Harri Lehkonen
+
+.
+
 * __elsewhere__
 * https://tribun.red/category/citaty/
 * [MathPages Quotations](http://www.mathpages.com/home/quotes.htm)
