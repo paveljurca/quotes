@@ -4372,6 +4372,15 @@ Maybe so, father, maybe so / Gran Torino
 
 .
 
+If you only go in there for the money you're only going to reach a certain status and I'm in there for greatness and peace-of-mind / Mike Tyson
+
+.
+
+The hundreds of people that wish they were in my shoes don't know the tenth of it. If they were in my shoes, they would cry like babies. They couldn't handle it / Mike Tyson
+
+.
+
+
 * __elsewhere__
 * https://tribun.red/category/citaty/
 * [MathPages Quotations](http://www.mathpages.com/home/quotes.htm)
