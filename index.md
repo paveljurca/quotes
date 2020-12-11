@@ -4380,6 +4380,10 @@ The hundreds of people that wish they were in my shoes don't know the tenth of i
 
 .
 
+Musíte být schopni dělat dnes věci, které ostatní nedělají, abyste zítra měli věci, které ostatní nikdy mít nebudou / Les Brown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
