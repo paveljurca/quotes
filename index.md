@@ -4384,6 +4384,10 @@ Musíte být schopni dělat dnes věci, které ostatní nedělají, abyste zítr
 
 .
 
+Jsou-li poměry nenormální, člověk se jim nesmí přizpůsobit / Miroslav Petříček
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
