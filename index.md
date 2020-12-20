@@ -4388,6 +4388,14 @@ Jsou-li poměry nenormální, člověk se jim nesmí přizpůsobit / Miroslav Pe
 
 .
 
+Knowledge is great but action is a must / Robert Kiyosaki
+
+.
+
+Kdybys nebyl debil, líp se učil, mohl si vládnout. Teď máš dluhů tři prdele, neumíš nic, nejde to zvládnout / Řezník Kapitalista
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
