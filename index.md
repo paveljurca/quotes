@@ -4396,6 +4396,10 @@ Kdybys nebyl debil, líp se učil, mohl si vládnout. Teď máš dluhů tři prd
 
 .
 
+Je čas, abychom všichni pochopili, že krize jsou výsledkem selhání státu, a že potřebujeme méně státu a více svobody / Oldřich Rejnuš
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
