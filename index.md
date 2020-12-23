@@ -4400,6 +4400,10 @@ Je čas, abychom všichni pochopili, že krize jsou výsledkem selhání státu,
 
 .
 
+Pokud jde o byznys, podnik, ten má maximalizovat příjmy, ne stavět hřiště a školy. Ale to, co si z toho byznysu vytáhnu pro sebe, s tím nakládám zase přesně opačně. Nejde to míchat / Jan Barta
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
