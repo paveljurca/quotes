@@ -4404,6 +4404,10 @@ Pokud jde o byznys, podnik, ten má maximalizovat příjmy, ne stavět hřiště
 
 .
 
+Ta jedna sklenička je právě tím, co dělá ze šampiona losera / Karlos Vémola 27.12.2020
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
