@@ -4408,6 +4408,10 @@ Ta jedna sklenička je právě tím, co dělá ze šampiona losera / Karlos Vém
 
 .
 
+If job training was ever going to work it's not now / Gordon Lafer
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
