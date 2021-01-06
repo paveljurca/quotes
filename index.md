@@ -4412,6 +4412,10 @@ If job training was ever going to work it's not now / Gordon Lafer
 
 .
 
+Jsme podrobeni zákonům, abychom mohli být svobodní / Marcus Tullius Cicero
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
