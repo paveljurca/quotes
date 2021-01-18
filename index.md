@@ -4416,6 +4416,10 @@ Jsme podrobeni zákonům, abychom mohli být svobodní / Marcus Tullius Cicero
 
 .
 
+If you live a pathological life you pathologize your society; and if enough people do that then it's hell; really really / Jordan Peterson
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
