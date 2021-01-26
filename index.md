@@ -4420,6 +4420,26 @@ If you live a pathological life you pathologize your society; and if enough peop
 
 .
 
+Klíčem k dobrému životu není zajímat se o víc, ale mít víc u prdele / Mark Manson: Důmyslné umění, jak mít všechno u prdele
+
+.
+
+Bůh miluje ty, kteří si pomohou sami / kardinál Richelieu
+
+.
+
+Je retardovanej? Retardovaný znamená pomalý. Byl pomalý? / Baby Driver
+
+.
+
+Spíš než styl hledáme atmosféru / Wotienke Vermeer 2011
+
+.
+
+To invent, you have to experiment, and if you know in advance that it’s going to work, it’s not an experiment. Our success at Amazon is a function of how many experiments we do per year, per month, per week, per day / Jeff Bezos
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
