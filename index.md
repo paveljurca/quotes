@@ -4440,6 +4440,14 @@ To invent, you have to experiment, and if you know in advance that it’s going 
 
 .
 
+Success can actually be bad, and can teach you the wrong things. I was thinking about ideas that would get attention instead of provide value / Alex Tew 2018
+
+.
+
+Kdo se někomu do rodiny naváží, sám si kope hrob / pravidlo ruských Vorů
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
