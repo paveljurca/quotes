@@ -4448,6 +4448,10 @@ Kdo se někomu do rodiny naváží, sám si kope hrob / pravidlo ruských Vorů
 
 .
 
+Sebe ver / Kontrafakt Dáva mi
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
