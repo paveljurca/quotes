@@ -4452,6 +4452,10 @@ Sebe ver / Kontrafakt Dáva mi
 
 .
 
+What makes you rich? Money / Robert Kiyosaki
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
