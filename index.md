@@ -4456,6 +4456,10 @@ What makes you rich? Money / Robert Kiyosaki
 
 .
 
+Eventually, the experience society, and its culmination in the results society, must also affect the minds of those who live in it / Empty Brain Happy Brain
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
