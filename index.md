@@ -2706,6 +2706,14 @@ We never asked anyone's opinion. We just did what we like to do / Magnus Walker 
 
 .
 
+Success really is the freedom to do whatever you want to do / Magnus Walker 3. 7. 2014
+
+.
+
+Go with your gut feeling / Magnus Walker 3. 7. 2014
+
+.
+
 V Německu vzniklo díky robotům o sedm procent více pracovních míst. To, co zaměstnanci budou muset umět, bude na trochu jiné úrovni než třeba dnes. Ale to není nic nového / Tanja Vainio 8. 7. 2017
 
 .
