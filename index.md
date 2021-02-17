@@ -4468,6 +4468,10 @@ Eventually, the experience society, and its culmination in the results society, 
 
 .
 
+All I learned was how to be strong alone / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
