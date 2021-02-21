@@ -4472,6 +4472,10 @@ All I learned was how to be strong alone / unknown
 
 .
 
+You want to create a product that will work with 90% of users / Chris Frantz
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
