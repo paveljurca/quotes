@@ -4476,6 +4476,10 @@ You want to create a product that will work with 90% of users / Chris Frantz
 
 .
 
+I have no interest in working with anyone who is too important or too good or too traditional to take a call at 3am / Kanye West 2016
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
