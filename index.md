@@ -4488,6 +4488,18 @@ Seeing is believing / unknown
 
 .
 
+If you don't ask the questions on what you want to do next, the world gonna put you in the box in what you have to do next / Patrick Bet-David Your Next Five Moves
+
+.
+
+Indecision is one of the most lethal killers of dreams there is. Decide and get moving / Tom Bilyeu
+
+.
+
+Don't believe everything you think / Tom Bilyeu
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
