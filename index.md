@@ -2222,7 +2222,7 @@ Keep your concentration here and now, where it belongs / Qui-Gon Jinn
 
 .
 
-Your focus determines your reality / Master Yoda
+Your focus determines your reality / Qui-Gon Jinn
 
 .
 
