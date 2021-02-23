@@ -4480,6 +4480,14 @@ I have no interest in working with anyone who is too important or too good or to
 
 .
 
+Seeing is believing / unknown
+
+.
+
+Člověk má tendenci zapomínat vše, co vyhodnotí jako irelevantní / Elon Musk 1.2.2021
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
