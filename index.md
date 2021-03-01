@@ -4500,6 +4500,10 @@ Don't believe everything you think / Tom Bilyeu
 
 .
 
+Get a Goal. Get a plan. And get up off your ass! / Johnny Wu
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
