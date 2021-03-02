@@ -4504,6 +4504,14 @@ Get a Goal. Get a plan. And get up off your ass! / Johnny Wu
 
 .
 
+I’m tired of getting the goddamn skim milk and hoping luck will bring us the cream — ‘cause it won’t / Brawl in Cell Block 99
+
+.
+
+The law of averages says that one time in three, I should get the cream, but it doesn’t happen. I don’t think things even out fair / Brawl in Cell Block 99
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
