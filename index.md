@@ -4512,6 +4512,10 @@ The law of averages says that one time in three, I should get the cream, but it 
 
 .
 
+Musíte prostě svým srdcem cítit, jak motocykl pracuje, jak žije, jestli to můžu říct takhle obrazně / Phillippe Starck
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
