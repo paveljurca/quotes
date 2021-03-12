@@ -4516,6 +4516,18 @@ Musíte prostě svým srdcem cítit, jak motocykl pracuje, jak žije, jestli to 
 
 .
 
+Talent is cheap. What really matters is discipline / Andre Dubus
+
+.
+
+Talent is a pursued interest. Anything that you're willing to practice, you can do / Bob Ross
+
+.
+
+You don't have to be blessed by Michaelangelo, you don't have to go to school half your life. You can paint / Bob Ross
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
