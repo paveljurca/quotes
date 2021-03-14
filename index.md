@@ -4528,6 +4528,30 @@ You don't have to be blessed by Michaelangelo, you don't have to go to school ha
 
 .
 
+Bez propagace se stane něco strašného. Nic! / Phineas Taylor Barnum
+
+.
+
+No one ever made a difference by being like everyone else / Phineas Taylor Barnum
+
+.
+
+If it doesn't sell, it isn't creative enough / David Ogilvy
+
+.
+
+In the factory we make cosmetics, in the store we sell hope / Charles Revson
+
+.
+
+When something has to be done, do it! In France we are full of good ideas, but we rarely put them into practice / Bernard Arnault
+
+.
+
+The creative process is very disorganised; the production process has to be very rational / Bernard Arnault
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
