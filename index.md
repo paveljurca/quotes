@@ -4552,6 +4552,10 @@ The creative process is very disorganised; the production process has to be very
 
 .
 
+Any additional work beyond what was required to start learning is waste / Eric Ries
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
