@@ -4556,6 +4556,10 @@ Any additional work beyond what was required to start learning is waste / Eric R
 
 .
 
+Ve vývoji musíte zkoušet, nemáte šanci vymyslet hned něco na 100 procent / Karel Loprais
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
