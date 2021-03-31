@@ -4560,6 +4560,10 @@ Ve vývoji musíte zkoušet, nemáte šanci vymyslet hned něco na 100 procent /
 
 .
 
+Musíš se přizpůsobit, když chceš dělat svojí věc / Ola Stenegard
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
