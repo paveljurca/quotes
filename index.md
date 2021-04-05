@@ -4564,6 +4564,10 @@ Musíš se přizpůsobit, když chceš dělat svojí věc / Ola Stenegard
 
 .
 
+Někteří polární obyvatelé vydělávají, i když spí, jiní běhají po pustině, až zhynou / Eskymo Welzl
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
