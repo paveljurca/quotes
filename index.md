@@ -4572,6 +4572,14 @@ In the end, only three things matter: how much you loved, how gently you lived, 
 
 .
 
+If you need encouragement to do it - then don't do it / Elon Musk
+
+.
+
+If you don't give up - you can't lose / William McRaven
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
