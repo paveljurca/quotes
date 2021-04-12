@@ -4568,6 +4568,10 @@ Někteří polární obyvatelé vydělávají, i když spí, jiní běhají po p
 
 .
 
+In the end, only three things matter: how much you loved, how gently you lived, and how gracefully you let go of things not meant for you / Jack Kornfield
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
