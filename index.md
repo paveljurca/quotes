@@ -4580,6 +4580,10 @@ If you don't give up - you can't lose / William McRaven
 
 .
 
+I stay in the gym. I drink a lot of water / Denzel Washington
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
