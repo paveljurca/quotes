@@ -4588,6 +4588,10 @@ People rarely leave your presence neutral. They either leave engaged or depleted
 
 .
 
+If you make your bed every morning, you will have accomplished the first task of the day / William H. McRaven
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
