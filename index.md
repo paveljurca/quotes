@@ -4584,6 +4584,10 @@ I stay in the gym. I drink a lot of water / Denzel Washington
 
 .
 
+People rarely leave your presence neutral. They either leave engaged or depleted / Brady Wilson
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
