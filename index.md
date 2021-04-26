@@ -4592,6 +4592,10 @@ If you make your bed every morning, you will have accomplished the first task of
 
 .
 
+I came in this world by myself, and when I die I'm gonna be the only one in that coffin / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
