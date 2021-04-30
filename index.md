@@ -4596,6 +4596,14 @@ I came in this world by myself, and when I die I'm gonna be the only one in that
 
 .
 
+Man needs difficulties. They are necessary for his health / Carl Jung
+
+.
+
+If you don’t like something, change it. If you can’t change it, change your attitude / Maya Angelou
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
