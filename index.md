@@ -4604,6 +4604,14 @@ If you don’t like something, change it. If you can’t change it, change your 
 
 .
 
+Spěch nebo příprava v kratší době se nikdy nemůže vyplatiti do budoucna / mjr. Josef Dobeš
+
+.
+
+Výhra je štěstí, prohra je norma / mjr. Josef Dobeš
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
