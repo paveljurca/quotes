@@ -4612,6 +4612,10 @@ Výhra je štěstí, prohra je norma / mjr. Josef Dobeš
 
 .
 
+Naděje na náhlé zbohatnutí dělá z poctivců vyvrhele, z vyvrhelů zase poctivce, zlato obrací lidský charakter naruby jako rukáv / Eskymo Welzl
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
