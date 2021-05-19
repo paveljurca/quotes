@@ -4616,6 +4616,10 @@ Naděje na náhlé zbohatnutí dělá z poctivců vyvrhele, z vyvrhelů zase poc
 
 .
 
+Chceš novou motorku? Tak si na ni kurva vydělej / Pepa Sršeň
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
