@@ -4620,6 +4620,14 @@ Chceš novou motorku? Tak si na ni kurva vydělej / Pepa Sršeň
 
 .
 
+Your past or even disability, does not have to define your future / Paul Alexander
+
+.
+
+When you start on a project, you have two options. Either you finish or you quit. And I never quit / Tommi Tomasson
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
