@@ -4632,6 +4632,10 @@ For things to change, you’ve got to change. For things to get better, you’ve
 
 .
 
+Creativity is as important as literacy / Sir Ken Robinson
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
