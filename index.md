@@ -4636,6 +4636,10 @@ Creativity is as important as literacy / Sir Ken Robinson
 
 .
 
+I didn't really read the guidelines / Linus Torvalds
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
