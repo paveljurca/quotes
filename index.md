@@ -4628,6 +4628,10 @@ When you start on a project, you have two options. Either you finish or you quit
 
 .
 
+For things to change, you’ve got to change. For things to get better, you’ve got to get better. It’s easy to do. But it’s easy not to do, too / The Slight Edge
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
