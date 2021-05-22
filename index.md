@@ -4640,6 +4640,10 @@ I didn't really read the guidelines / Linus Torvalds
 
 .
 
+Never run out of thrills / Yedoo
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
