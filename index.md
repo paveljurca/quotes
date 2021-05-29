@@ -4644,6 +4644,10 @@ Never run out of thrills / Yedoo
 
 .
 
+It's important to inspire others because I recognize that I did not go the way I am today - without inspiration of so many people / Arnold Schwarzenegger
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
