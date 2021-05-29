@@ -4648,6 +4648,10 @@ It's important to inspire others because I recognize that I did not go the way I
 
 .
 
+Nobody expected it - that's why it's a brilliant plan / 2 Guns
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
