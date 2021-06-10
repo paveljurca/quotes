@@ -4652,6 +4652,10 @@ Nobody expected it - that's why it's a brilliant plan / 2 Guns
 
 .
 
+Mom told us to make a useful life. Nothing big. Nothing great. Just to start / Dark Places
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
