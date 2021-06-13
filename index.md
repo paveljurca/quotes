@@ -4656,6 +4656,10 @@ Mom told us to make a useful life. Nothing big. Nothing great. Just to start / D
 
 .
 
+Ve 21. století jsme všichni zaneprázdněni / Jeff Bazos
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
