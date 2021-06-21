@@ -4660,6 +4660,10 @@ Ve 21. století jsme všichni zaneprázdněni / Jeff Bazos
 
 .
 
+Pochyby způsobují chaos a předcházejí pád / Gentlemani
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
