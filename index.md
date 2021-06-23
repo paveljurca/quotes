@@ -4664,6 +4664,10 @@ Pochyby způsobují chaos a předcházejí pád / Gentlemani
 
 .
 
+Myslí si, že oni chytřejší, že mají mozků hlavu plnou / Star Wars: Skrytá hrozba
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
