@@ -4664,7 +4664,19 @@ Pochyby způsobují chaos a předcházejí pád / Gentlemani
 
 .
 
-Myslí si, že oni chytřejší, že mají mozků hlavu plnou / Star Wars: Skrytá hrozba
+Myslí si, že oni chytráci, že mají mozků hlavu plnou / Star Wars: Skrytá hrozba
+
+.
+
+Try, try, try again / W. E. Hickson
+
+.
+
+Děsili se už při pouhém pomyšlení na pracovní úpravy. Byli by si museli půjčit, šetřit, investovat. Nemohli se s tím smířit, nadchnout se pro to: představovali si buď všechno, nebo nic / Georges Perec Věci
+
+.
+
+Mezi tyto příliš velkolepé sny, ve kterých nacházeli podivné zalíbení, a bezvýznamnost jejich skutečných činů se nevklínil žádný účelný plán; Ochromovala je nesmírnost jejich přání / Georges Perec Věci
 
 .
 
