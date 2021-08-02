@@ -4680,6 +4680,10 @@ Mezi tyto příliš velkolepé sny, ve kterých nacházeli podivné zalíbení, 
 
 .
 
+Vlci se navrátí jedině tehdy, když se daří jejich kořisti a okolnímu lesu / Naše planeta
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
