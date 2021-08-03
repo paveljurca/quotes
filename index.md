@@ -4684,6 +4684,10 @@ Vlci se navrátí jedině tehdy, když se daří jejich kořisti a okolnímu les
 
 .
 
+You must study the endgame before everything else / José Capablanca
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
