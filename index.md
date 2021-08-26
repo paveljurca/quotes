@@ -4688,6 +4688,10 @@ You must study the endgame before everything else / José Capablanca
 
 .
 
+Once I made a decision, I never thought about it again / Michael Jordan
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
