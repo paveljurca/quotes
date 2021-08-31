@@ -4692,6 +4692,14 @@ Once I made a decision, I never thought about it again / Michael Jordan
 
 .
 
+Raději se dívám, než mluvím / Karel Hubáček
+
+.
+
+Ne že to udělám, že to umim a že to udělám desetkrát. Ne. Přemejšlim o těch věcech, že to můžu udělat úplně jinak / Karel Hubáček
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
