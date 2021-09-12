@@ -4700,6 +4700,14 @@ Ne že to udělám, že to umim a že to udělám desetkrát. Ne. Přemejšlim o
 
 .
 
+Když chceme, aby byl někdo ještě lepší, než je, udělejme mu radost, to je jednoduché / Daisy Mrázková
+
+.
+
+The end comes no matter what. The only thing that matters is how do you want to go out; on your feet or on your knees / The Kingdom
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
