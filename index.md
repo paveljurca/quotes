@@ -4708,6 +4708,10 @@ The end comes no matter what. The only thing that matters is how do you want to 
 
 .
 
+Since the beginning of time, canines have protected their resources. In the wild, wolves and wild dogs will show aggressive behavior any time a person or animal gets near something they believe is theirs / dailydogstuff.com
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
