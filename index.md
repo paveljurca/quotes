@@ -4712,6 +4712,10 @@ Since the beginning of time, canines have protected their resources. In the wild
 
 .
 
+People only know what you tell them, Carl / Catch Me If You Can
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
