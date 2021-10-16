@@ -4716,6 +4716,14 @@ People only know what you tell them, Carl / Catch Me If You Can
 
 .
 
+You must do what others don’t achieve what others won’t / Ken Dunn
+
+.
+
+If you get tired, learn to rest, not to quit / Ken Dunn
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
