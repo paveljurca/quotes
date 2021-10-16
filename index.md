@@ -4724,6 +4724,10 @@ If you get tired, learn to rest, not to quit / Ken Dunn
 
 .
 
+The freedom and simple beauty is just too good to pass up / Into the Wild
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
