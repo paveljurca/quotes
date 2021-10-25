@@ -4728,6 +4728,10 @@ The freedom and simple beauty is just too good to pass up / Into the Wild
 
 .
 
+Don't let yourself be controlled by 3 things: people, money or past experiences / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
