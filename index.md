@@ -4732,6 +4732,10 @@ Don't let yourself be controlled by 3 things: people, money or past experiences 
 
 .
 
+If a man knows more than others - he becomes lonely / Carl Jung
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
