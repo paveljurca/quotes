@@ -4736,6 +4736,10 @@ If a man knows more than others - he becomes lonely / Carl Jung
 
 .
 
+Find your game / Robert Kiyosaki
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
