@@ -4740,6 +4740,10 @@ Find your game / Robert Kiyosaki
 
 .
 
+If you don't want to spend your life in a kitchen, don't learn how to cook / Kim Kiyosaki
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
