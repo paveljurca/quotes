@@ -4716,7 +4716,7 @@ People only know what you tell them, Carl / Catch Me If You Can
 
 .
 
-You must do what others don’t achieve what others won’t / Ken Dunn
+You must do what others don’t to achieve what others won’t / Ken Dunn
 
 .
 
@@ -4741,6 +4741,14 @@ Find your game / Robert Kiyosaki
 .
 
 If you don't want to spend your life in a kitchen, don't learn how to cook / Kim Kiyosaki
+
+.
+
+If you don't like where you are, move. You are not a tree / unknown
+
+.
+
+Intensity is overrated. Consistency is underrated / Shane Parrish
 
 .
 
