@@ -4752,6 +4752,10 @@ Intensity is overrated. Consistency is underrated / Shane Parrish
 
 .
 
+Maybe if we tell people the brain is an app, they'll start using it / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
