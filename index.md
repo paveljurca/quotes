@@ -4664,6 +4664,18 @@ Pochyby způsobují chaos a předcházejí pád / Gentlemani
 
 .
 
+If you wish to be the king of the jungle, it's not enough to act like a king. You must be the king. There can be no doubt. Because doubt causes chaos and one's own demise / The Gentlemen
+
+.
+
+Education isn't something you can finish / Isaac Asimov
+
+.
+
+The greatest prison people live in is the fear of what other people think / David Icke
+
+.
+
 Myslí si, že oni chytráci, že mají mozků hlavu plnou / Star Wars: Skrytá hrozba
 
 .
