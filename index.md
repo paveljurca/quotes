@@ -4768,6 +4768,18 @@ Maybe if we tell people the brain is an app, they'll start using it / unknown
 
 .
 
+Don't sleep like you are rich. Work like you are broke / unknown
+
+.
+
+You never change things by fighting the existing reality. To change something, build a new model that makes the existing model obsolete / Buckminster Fuller
+
+.
+
+It's up to us, do we want to succeed or fail / Buckminster Fuller
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
