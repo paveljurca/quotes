@@ -4780,6 +4780,10 @@ It's up to us, do we want to succeed or fail / Buckminster Fuller
 
 .
 
+No one is more hated than he who speaks the truth / Plato
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
