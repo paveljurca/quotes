@@ -4784,6 +4784,10 @@ No one is more hated than he who speaks the truth / Plato
 
 .
 
+Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it / Robert Frost
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
