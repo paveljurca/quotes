@@ -4788,6 +4788,14 @@ Half the world is composed of people who have something to say and can't, and th
 
 .
 
+We must always strive for balance / Snowpiercer
+
+.
+
+Enough or not enough is not the criteria - Balance / Snowpiercer
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
