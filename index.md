@@ -4796,6 +4796,10 @@ Enough or not enough is not the criteria - Balance / Snowpiercer
 
 .
 
+It's in my head that whatever happens, happens, and I will meet that when it comes / Rev John Kirkpatrick
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
