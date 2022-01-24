@@ -4800,6 +4800,10 @@ It's in my head that whatever happens, happens, and I will meet that when it com
 
 .
 
+Never announce your move before you make it. A fish with a closed mouth never gets caught / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
