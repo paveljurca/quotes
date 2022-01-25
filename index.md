@@ -4804,6 +4804,10 @@ Never announce your move before you make it. A fish with a closed mouth never ge
 
 .
 
+We suffer more in imagination than in reality / Seneca
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
