@@ -4808,6 +4808,14 @@ We suffer more in imagination than in reality / Seneca
 
 .
 
+Rozdíl mezi dezinformací a informací je několik týdnů / Daniel Vávra
+
+.
+
+If you have fun on the track you are always fast / Rene Hofer
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
