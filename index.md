@@ -4816,6 +4816,10 @@ If you have fun on the track you are always fast / Rene Hofer
 
 .
 
+Šanci nemáš jen tehdá, když si ji sám nedáš / 7 trpaslíků
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
