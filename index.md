@@ -4820,6 +4820,10 @@ If you have fun on the track you are always fast / Rene Hofer
 
 .
 
+The problem with the world is that the intelligent people are full of doubts, while the stupid ones are full of confidence / Charles Bukowski
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
