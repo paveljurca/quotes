@@ -4824,6 +4824,10 @@ The problem with the world is that the intelligent people are full of doubts, wh
 
 .
 
+Happiness is not getting all you want, it is about enjoying all you have / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
