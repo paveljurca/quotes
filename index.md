@@ -4828,6 +4828,10 @@ Happiness is not getting all you want, it is about enjoying all you have / unkno
 
 .
 
+Šílence je třeba izolovat / Miloš Zeman
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
