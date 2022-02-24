@@ -4832,6 +4832,10 @@ Happiness is not getting all you want, it is about enjoying all you have / unkno
 
 .
 
+War does not determine who is right; only who is left / Bertrand Russell
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
