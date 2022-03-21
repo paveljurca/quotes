@@ -4840,6 +4840,10 @@ Damn the rules, it's the feeling that counts / John Coltrane
 
 .
 
+When you find no solution to a problem, it's probably not a problem to be solved / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
