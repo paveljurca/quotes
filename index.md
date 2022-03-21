@@ -4836,6 +4836,10 @@ War does not determine who is right; only who is left / Bertrand Russell
 
 .
 
+Damn the rules, it's the feeling that counts / John Coltrane
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
