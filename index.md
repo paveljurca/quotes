@@ -4844,6 +4844,10 @@ When you find no solution to a problem, it's probably not a problem to be solved
 
 .
 
+The question is not whether there is intelligent life out there, the question is, whether there is intelligent life down here. As long as you have war, police, prisons, crime, you are in the early stages of civilization / Jacque Fresco
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
