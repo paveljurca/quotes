@@ -4848,6 +4848,10 @@ The question is not whether there is intelligent life out there, the question is
 
 .
 
+Na všechno se dá zvyknout — kromě hladu / Peklo
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
