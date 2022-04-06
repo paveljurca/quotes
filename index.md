@@ -4852,6 +4852,10 @@ Na všechno se dá zvyknout — kromě hladu / Peklo
 
 .
 
+All war is a symptom of man's failure as a thinking animal / John Steinbeck
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
