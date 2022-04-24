@@ -4856,6 +4856,10 @@ All war is a symptom of man's failure as a thinking animal / John Steinbeck
 
 .
 
+Míň řečí o humrech, a víc humrů / Sharkdog
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
