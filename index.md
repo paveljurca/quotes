@@ -4860,6 +4860,10 @@ Míň řečí o humrech, a víc humrů / Sharkdog
 
 .
 
+NEMÁ SMYSL SÁZET SEMÍNKA, AŽ KDYŽ MÁŠ HLAD / japonské přísloví
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
