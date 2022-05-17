@@ -4864,6 +4864,10 @@ NEMÁ SMYSL SÁZET SEMÍNKA, AŽ KDYŽ MÁŠ HLAD / japonské přísloví
 
 .
 
+La familia es todo / Don Hector
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
