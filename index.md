@@ -4872,6 +4872,14 @@ If a man knows not to which port he sails no wind is favorable / Seneca
 
 .
 
+A good plan, violently executed now, is better than a perfect plan next week / George Patton
+
+.
+
+Anxiety is thought without control; Flow is control without thought / James Clear
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
