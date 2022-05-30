@@ -4868,6 +4868,10 @@ La familia es todo / Don Hector
 
 .
 
+If a man knows not to which port he sails no wind is favorable / Seneca
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
