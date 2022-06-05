@@ -4880,6 +4880,10 @@ Anxiety is thought without control; Flow is control without thought / James Clea
 
 .
 
+Život je jako řeka, nevidíš daleko dopředu. Nemáš tucha jak se řeka života zatočí. Nevíš, kam půjde její cesta. Nepokoušej se změnit tok té řeky. Až si uvědomíš, kým jsi a za co bojuješ — kamkoli tě řeka zavede, budeš přesně tam, kde jsi vždycky chtěla být / Dračí princ, Srdce Titána
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
