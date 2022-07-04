@@ -4884,6 +4884,14 @@ Anxiety is thought without control; Flow is control without thought / James Clea
 
 .
 
+Často potkáš svůj osud na cestě, po které před ním utíkáš / Kung-fu panda
+
+.
+
+Tvá mysl je jako hladina příteli; Pokud bude rozbouřená, nelze v ní vůbec nic zpatřit / Kung-fu panda
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
