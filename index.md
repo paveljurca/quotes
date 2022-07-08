@@ -4892,6 +4892,10 @@ Tvá mysl je jako hladina příteli; Pokud bude rozbouřená, nelze v ní vůbec
 
 .
 
+Being a boss is about being in the driver’s seat of your life, regardless of whether you’re riding in a Bugatti or your momma’s Ford Focus / Rick Ross
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
