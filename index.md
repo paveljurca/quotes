@@ -4896,6 +4896,10 @@ Being a boss is about being in the driver’s seat of your life, regardless of w
 
 .
 
+Cena, cena, to je, když je člověk zticha a sám něco pořádného udělá / Daisy Mrázková, Byla jedna moucha
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
