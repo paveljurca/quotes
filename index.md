@@ -4900,6 +4900,10 @@ Cena, cena, to je, když je člověk zticha a sám něco pořádného udělá / 
 
 .
 
+I will win! Why? Because I have faith, courage, enthusiasm / The Company Men
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
