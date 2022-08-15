@@ -4904,6 +4904,10 @@ I will win! Why? Because I have faith, courage, enthusiasm / The Company Men
 
 .
 
+I don't jump for anybody. Because I've got self-respect / Stuber
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
