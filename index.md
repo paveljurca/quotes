@@ -4908,6 +4908,10 @@ I don't jump for anybody. Because I've got self-respect / Stuber
 
 .
 
+Jakmile poznáš, co je na tomto světě krásné, přestaneš být otrokem / Iqbal
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
