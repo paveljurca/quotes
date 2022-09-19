@@ -4912,6 +4912,22 @@ Jakmile poznáš, co je na tomto světě krásné, přestaneš být otrokem / Iq
 
 .
 
+Be strong... to be weak is to invite aggression, oppression, tyranny, misery, and woe / Karoniaktajeh Louis Hall
+
+.
+
+Power's not given to you. You have to take it / Beyoncé Knowles
+
+.
+
+I believe our society has fell into a pyramid system where there's people relegated to the bottom of that pyramid and there's people that feel like they're entitled to the top of that pyramid / Ice Cube
+
+.
+
+It's always better to shock people and change people's expectations than to give them exactly what they think you can do / Jonah Hill
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
