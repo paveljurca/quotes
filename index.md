@@ -4928,6 +4928,10 @@ It's always better to shock people and change people's expectations than to give
 
 .
 
+Radši budu broke než makat lopatou / Protiva
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
