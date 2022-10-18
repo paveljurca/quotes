@@ -4928,7 +4928,7 @@ It's always better to shock people and change people's expectations than to give
 
 .
 
-Radši budu broke než makat lopatou / Protiva
+A spíš budu broke, než makat lopatou / Protiva
 
 .
 
