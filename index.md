@@ -4932,6 +4932,10 @@ Radši budu broke než makat lopatou / Protiva
 
 .
 
+The only easy day was yesterday / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
