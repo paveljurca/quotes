@@ -4936,6 +4936,10 @@ The only easy day was yesterday / unknown
 
 .
 
+Getting to know the track in detail was not on my list. It was just go fast and worry about it after / Scott Redding 
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
