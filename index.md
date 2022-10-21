@@ -4940,6 +4940,10 @@ Getting to know the track in detail was not on my list. It was just go fast and 
 
 .
 
+Přestaňte žvanit a běžte třeba na oběd / Jurský svět: Legenda Isla Nublar
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
