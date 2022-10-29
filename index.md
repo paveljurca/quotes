@@ -4944,6 +4944,10 @@ Přestaňte žvanit a běžte třeba na oběd / Jurský svět: Legenda Isla Nubl
 
 .
 
+Člověk si tak žije a žije a najednou je z toho číselná řada / Z deníku ajťáka
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
