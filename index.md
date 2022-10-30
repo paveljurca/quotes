@@ -4948,6 +4948,18 @@ Přestaňte žvanit a běžte třeba na oběd / Jurský svět: Legenda Isla Nubl
 
 .
 
+If you're not doing some things that are crazy, then you're doing the wrong things / Larry Page
+
+.
+
+"10X" mentality — Google employees are expected to create products and services that are at least 10 times better than those of its competitors / Steven Levy
+
+.
+
+Člověk si musí najít svou cestu. Jestli ji opravdu hledá, najde ji velmi brzy. Potom se jí ale už musí držet, nebo zabloudí / Tomáš Garrigue Masaryk
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
