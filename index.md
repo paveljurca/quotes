@@ -4960,6 +4960,10 @@ If you're not doing some things that are crazy, then you're doing the wrong thin
 
 .
 
+You can't convince anyone of anything. You can only give them the right information so that they convince themselves / Eben Pagan
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
