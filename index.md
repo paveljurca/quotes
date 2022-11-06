@@ -4964,6 +4964,14 @@ You can't convince anyone of anything. You can only give them the right informat
 
 .
 
+If there are nine rabbits on the ground, if you want to catch one, just focus on one / Jack Ma
+
+.
+
+The key is not to prioritize what's on your schedule, but to schedule your priorities / Stephen Covey
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
