@@ -4972,6 +4972,10 @@ The key is not to prioritize what's on your schedule, but to schedule your prior
 
 .
 
+Vstávať do roboty jako kokot tak to néé / Rytmus Ciganský sen
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
