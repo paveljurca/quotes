@@ -4976,6 +4976,10 @@ Vstávať do roboty jako kokot tak to néé / Rytmus Ciganský sen
 
 .
 
+Jsme chudý, jsme. Potřebujeme poklad, potřebujeme / Trautenberk
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
