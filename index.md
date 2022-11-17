@@ -4980,6 +4980,10 @@ Jsme chudý, jsme. Potřebujeme poklad, potřebujeme / Trautenberk
 
 .
 
+Mnozí první budou poslední a poslední první / Matouš 19:30
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
