@@ -4984,6 +4984,10 @@ Mnozí první budou poslední a poslední první / Matouš 19:30
 
 .
 
+It's truth or lies. That's it. The truth is who you are. Lie is everything else / Gully 2019
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
