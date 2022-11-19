@@ -4988,6 +4988,10 @@ It's truth or lies. That's it. The truth is who you are. Lie is everything else 
 
 .
 
+I asked what you want, not what you like. Nobody give a damn about what you like. You gotta tell a motherfucker what you want / Gully 2019
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
