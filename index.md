@@ -4992,6 +4992,10 @@ I asked what you want, not what you like. Nobody give a damn about what you like
 
 .
 
+Noc pokročila, den se přiblížil. Odložme tedy skutky temnoty a oblečme se do výzbroje světla / Řím 13:12
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
