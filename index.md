@@ -4996,6 +4996,14 @@ Noc pokročila, den se přiblížil. Odložme tedy skutky temnoty a oblečme se 
 
 .
 
+Any sufficiently advanced technology is indistinguishable from magic / Arthur C. Clarke
+
+.
+
+Money to get the power, power to keep the money / Magnificent Lorenzo di Piero de’ Medici
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
