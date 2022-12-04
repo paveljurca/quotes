@@ -5004,6 +5004,12 @@ Money to get the power, power to keep the money / Magnificent Lorenzo di Piero d
 
 .
 
+a Prince can never secure himself against disaffected people, their number being too great / Machiavelli, The Prince 
+
+.
+
+he who becomes a Prince through the favour of the people should always keep on good terms with them; which it is easy for him to do, since all they ask is not to be oppressed / Machiavelli, The Prince 
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
