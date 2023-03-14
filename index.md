@@ -5020,6 +5020,10 @@ Do not use your energy to worry. Use your energy to believe, to create, to learn
 
 .
 
+Winning is carefully planned / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
