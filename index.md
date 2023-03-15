@@ -5024,6 +5024,10 @@ Winning is carefully planned / unknown
 
 .
 
+Nepleťme si odvahu s agresivitou / Martin Rajniš
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
