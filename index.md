@@ -5028,6 +5028,10 @@ Nepleťme si odvahu s agresivitou / Martin Rajniš
 
 .
 
+Společnost si zvykla na to, že žije o 200 miliard bohatší život, než na kolik reálně vydělává / Vít Hradil, 2022
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
