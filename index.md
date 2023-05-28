@@ -5032,6 +5032,10 @@ Společnost si zvykla na to, že žije o 200 miliard bohatší život, než na k
 
 .
 
+How you do anything is how you do everything / unknown
+
+.
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
