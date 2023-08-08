@@ -5036,6 +5036,10 @@ How you do anything is how you do everything / unknown
 
 .
 
+You know people gonna come and do what they always do: try and take it all for themselves / Nope 2022
+
+
+
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
