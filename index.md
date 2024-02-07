@@ -5038,7 +5038,15 @@ How you do anything is how you do everything / unknown
 
 You know people gonna come and do what they always do: try and take it all for themselves / Nope 2022
 
+.
 
+I was at the nadir of my life. Then you start building yourself back up and you start to get your life in order first and work on yourself. And then you start getting back. And you become better at everything / Jim Montgomery
+
+.
+
+Before software can be reusable it first has to be usable  / Ralph Johnson
+
+.
 
 
 * __elsewhere__
