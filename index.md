@@ -5048,6 +5048,21 @@ Before software can be reusable it first has to be usable  / Ralph Johnson
 
 .
 
+Buying at the right terms means success. Not buying at the wrong terms means less success but still success. Buying at the wrong terms means deep unsuccess / Andrea Orcel, UniCredit
+
+.
+
+You need skill to score, but you also need some grit. Simplifying your game and going hard to the net / Kris Knoblauch, Edmonton Oilers
+
+.
+
+If I don't have an abstraction that's nailing almost 100% of my needs then I might not want to have that abstraction and go to the level below, understand the level below it fully, and do what I need to do / Nathan Sobo, We have to start over
+
+.
+
+If I can build a system that I can understand and learn from, then I know that I can do what we need to do if it's fundamentally possible on the underlying system / Nathan Sobo, We have to start over
+
+.
 
 * __elsewhere__
 * https://tribun.red/category/citaty/
